@@ -1,7 +1,5 @@
 𝑴𝒂𝒉𝒊 𝒊𝒔 𝑯𝑬𝑹𝑬!
 
-tring!
-
 
 <p align="center">
   <a href="https://skillicons.dev">
